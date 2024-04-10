@@ -1,0 +1,2 @@
+# QURAN
+faridun
